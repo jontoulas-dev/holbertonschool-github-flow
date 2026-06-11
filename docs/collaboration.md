@@ -1,4 +1,4 @@
-Effective teamwork depends on continuous feedback and shared understanding.
+Collaboration requires clear communication and well-defined responsibilities.
 
 5d78b5ea05a1d26cd54464627bd99b8199d528ae
 
